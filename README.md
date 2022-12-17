@@ -1,0 +1,3 @@
+- 👋 Hi, I’m ac
+- 🌱 I’m currently learning Chemestry.
+- 📫 How to reach me, just contact me on discord.
