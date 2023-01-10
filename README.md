@@ -1,3 +1,3 @@
 - 👋 Hi, I’m ac
-- 🌱 I’m currently learning Chemestry.
+- 🌱 I’m currently learning Kernel.
 - 📫 How to reach me, just contact me on discord.
