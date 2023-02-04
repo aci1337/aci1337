@@ -1,3 +1,1 @@
-- 👋 Hi, I’m ac
-- 🌱 I’m currently learning Kernel.
-- 📫 How to reach me, just contact me on discord.
+Hi guys, my name is aci25 and i am a little dizzy from all these pasters 🥵
