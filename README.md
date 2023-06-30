@@ -1,2 +1,1 @@
-
-And i wonder, if you know what it means...
+Hi!
