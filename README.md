@@ -3,7 +3,7 @@ Hey! Welcome to my GitHub brosky
 
 ## About Me
 
-- 💻 C++/C/ASM Enthusiast
+- 💻 C++/C Enthusiast
 - 🌟 Software Developer
 - 📚 Lifelong Learner
 
